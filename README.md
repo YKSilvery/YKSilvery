@@ -1,4 +1,10 @@
-## Hi there 👋
+## SilverySKYPony
+
+still a student UwU | artist | music producer | Like electronic/epic orchestral music | email : yksilvery@gmail.com
+
+Coding : python | C++ | rust |
+
+Working on some AI stuffs 
 
 <!--
 **YKSilvery/YKSilvery** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
