@@ -1,6 +1,6 @@
 ## SilverySKYPony
 
-still a caiji student UwU | ENORMOUS DIVINITY | ENORMOUS DIVINITY producer | Like ENORMOUS DIVINITY music | email : ENORMOUS@DIVINITY.com
+still a caiji student UwU 
 
 Coding : python | C++ | rust |
 
