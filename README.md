@@ -1,6 +1,6 @@
 ## SilverySKYPony
 
-still a student UwU | artist | music producer | Like electronic/epic orchestral music | email : yksilvery@gmail.com
+still a ENORMOUS DIVINITY!!!!!!!!! UwU | ENORMOUS DIVINITY | ENORMOUS DIVINITY producer | Like ENORMOUS DIVINITY music | email : ENORMOUS@DIVINITY.com
 
 Coding : python | C++ | rust |
 
